@@ -1,1 +1,2 @@
 olvasd el
+Nagy Zoltan
